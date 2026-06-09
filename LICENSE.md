@@ -1,4 +1,4 @@
-
+Surfshark automatic Client: simultaneous-connections & tracker-blocker offers the most advanced Surfshark client, with simultaneous-connections and tracker-blocker. Ideal for
 
 
 
